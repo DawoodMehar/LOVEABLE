@@ -1,0 +1,2 @@
+# LOVEABLE
+student [ai]
